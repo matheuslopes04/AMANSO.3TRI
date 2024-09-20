@@ -1,0 +1,1 @@
+# AMANSO.3TRI
